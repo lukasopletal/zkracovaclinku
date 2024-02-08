@@ -1,2 +1,0 @@
-# zkracenilinku
-# zkracovaclinku
